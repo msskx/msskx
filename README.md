@@ -1,9 +1,9 @@
 ##  
 ### "Standing at the top, the world is at my feet, Surveying all below, each mountain but a seat."
-### 乱烘烘你方唱罢我登场，
-### 反认他乡是故乡。
-### 甚荒唐，
-### 到头来都是为他人作嫁衣裳！
+** 乱烘烘你方唱罢我登场，**
+** 反认他乡是故乡。**
+** 甚荒唐，**
+** 到头来都是为他人作嫁衣裳！**
 <!--
 ### 我愿用我半生年华 陪你去看祭晚霞✨
 ## 
